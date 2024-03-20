@@ -2,9 +2,9 @@
 
 **24 second** -Today in March 2024, seize the Coin Master Free Spins, Coins, and Links! Simply tap the "Collect Now" button to access a wealth of rewards. A pop-up menu will then prompt you to open these treasures directly within Coin Master. It's a seamless way to enhance your gaming experience and progress in your village-building adventure.
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 .
 Coin Master's March 2024 update brings exciting new features and rewards for players to enjoy. With the latest Free Spins Coins Links, players can dive into a world of adventure and strategy as they build and upgrade their villages. Simply tapping on the "Collect Now" button triggers a seamless experience, where a pop-up menu appears, offering players the option to instantly open their rewards within Coin Master.
 
